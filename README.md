@@ -1,4 +1,4 @@
-### Hi there my name is Jakk and I am really cool! 👋👋👋👋👋
+### Hi I'm Jake.
 
 <!--
 **Jakk393/Jakk393** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
